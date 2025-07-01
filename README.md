@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=s1llycleric&label=stalkers%20&style=flat" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=s1llycleric&label=stalkers%20&color=660000style=flat" </p>
 <p align="center">
 
 <img src="[https://i.postimg.cc/9MGQ8z26/7.jpg](https://i.postimg.cc/hvcTMHk0/one-wheat-mark-stranger-things.gif)">
