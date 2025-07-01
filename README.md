@@ -1,7 +1,7 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=s1llycleric&label=stalkers%20&color=4B0101&style=flat" </p>
 <p align="center">
 
-<img src="[https://i.postimg.cc/9MGQ8z26/7.jpg](https://i.postimg.cc/hvcTMHk0/one-wheat-mark-stranger-things.gif)">
+<img src="https://postimg.cc/WFYd1fbD">
 <h6 align="center">
 ' for a minute there , 
   <h6 align="center" >
